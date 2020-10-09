@@ -5,7 +5,7 @@ Hi this is a sorta awesome list of 3d printing things that I find helpfull.
 
 ## [YouTubers, my list of](https://github.com/quedayone/3d_Printing/blob/main/YouTubers.md)
 
-# Fillament that has worked great for me and my income bracket.
+## [Fillament that has worked great for me and my income bracket](fillament.md)
 
 # All of my stuff:
 YouTube: https://www.youtube.com/channel/UCYsdAKoaRE28caIok0wAPXw

@@ -80,7 +80,7 @@ https://www.youtube.com/channel/UCSwLL-gZcU4QMnEywValf4Q
 Barb Makes Things
 https://www.youtube.com/channel/UCHWvlZ6jGmXKYa1w8yRVcbA
 
-# Fillament that has worked grat for me and my income bracket.
+# Fillament that has worked great for me and my income bracket.
 OVERTURE PETG Filament 1.75mm
 https://www.amazon.com/gp/product/B07VBKP1PN/ref=ppx_yo_dt_b_asin_title_o00_s00?ie=UTF8&psc=1
 
@@ -90,3 +90,30 @@ https://www.amazon.com/3D-Solutech-Natural-Printer-Filament/dp/B00VKSVMOY/ref=sx
 Micro Center Inland brand
 https://www.microcenter.com/search/search_results.aspx?Ntk=all&sortby=match&N=4294866996+4294822437+4294818810+4294816090&myStore=true
 
+# All of my stuff:
+YouTube: https://www.youtube.com/channel/UCYsdAKoaRE28caIok0wAPXw
+
+Facebook: https://fb.me/11D30.TECH
+
+Instagram: https://www.instagram.com/11d30/
+
+Twitter: https://twitter.com/11d30
+
+Thingiverse: https://www.thingiverse.com/11d30/about
+
+MyMiniFactory: https://www.myminifactory.com/users/11d30
+
+Autodesk: nope
+
+TinkerCad:https://www.tinkercad.com/users/a8e17ldcK54-11d30 Nothing there at the moment
+
+myminifactory: https://www.myminifactory.com/users/11d30 
+
+prusaprinters: https://www.prusaprinters.org/social/46362-11d30/prints
+
+cults3d: https://cults3d.com/en/users/11d30/creations
+
+pinshape: https://pinshape.com/users/738237-11d30
+ 
+Plu.us
+https://plu.us/11d30

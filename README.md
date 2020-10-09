@@ -7,7 +7,7 @@ Hi this is a sorta awesome list of 3d printing things that I find helpfull.
 
 ## [Fillament that has worked great for me and my income bracket](https://github.com/quedayone/3d_Printing/blob/main/Filament.md)
 
-# All of my stuff:
+## All of my Links:
 YouTube: https://www.youtube.com/channel/UCYsdAKoaRE28caIok0wAPXw
 
 Facebook: https://fb.me/11D30.TECH
